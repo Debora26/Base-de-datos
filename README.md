@@ -1,2 +1,1 @@
 # deby
-ya tu sabe
